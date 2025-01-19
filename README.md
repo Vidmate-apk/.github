@@ -1,6 +1,6 @@
 ### Download Vidmate APK Now!
 
-<a href="https://arolinks.com/RIJ6F" style="display: inline-block; padding: 10px 20px; background-color: #4CAF50; color: white; text-align: center; border-radius: 12px; text-decoration: none;">➡️➡️➡️➡️Download Vidmate APK</a>
+<a href="https://arolinks.com/RIJ6F" style="display: inline-block; padding: 10px 20px; background-color: #4CAF50; color: white; text-align: center; border-radius: 12px; text-decoration: none;">➡️Download Vidmate APK</a>
 ---
 
 # Vidmate APK: The Ultimate Entertainment App for Downloading Videos and Music
